@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with updated Scanner for new token sniper bot | take-profit & slippage-control. Featuring take-profit and slippage-control, it's the best
 
 
 
